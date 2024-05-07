@@ -1,1 +1,1 @@
-# QUmarketing
+# QU-Marketing
